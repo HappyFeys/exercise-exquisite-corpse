@@ -6,7 +6,7 @@ On va se donner à fond pour être un des meilleurs
 
 Mais au fur et a mesure des jours, je commence a connaitre des gens.  
 Le code ne me semble pas trop compliqué, j'arrive a m'en sortir.
-Les personnes de ma classe me sembles cool. 
+Les personnes de ma classe me semble cool. 
 
 Aujourd'hui nous avons travaillé pour la premiére fois à distance.
 Cela me permets de m'ouvir plus envers les nouvelles personnes de ma classe.
