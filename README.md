@@ -12,3 +12,5 @@ Aujourd'hui nous avons travaillé pour la premiére fois à distance.
 Cela me permets de m'ouvir plus envers les nouvelles personnes de ma classe.
 C'est génial et surtout ça me permets d'avoir un avant-goût de ce qui m'attends
 professionnelement.
+
+Ah ! À ce propos, je dois vous avouer que j'ai longtemps réflechi à savoir comment vous deviez m'appeler. [...] Éh oui ! Parce que vous êtes pas, à proprement parler, un de mes sujets. Vous êtes pas sous mes ordres non plus. "Sire" c'est quand même un peu ampoulé. Alors j'ai pensé à beaucoup de choses.
